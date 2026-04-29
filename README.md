@@ -1,1 +1,1 @@
-# alongside-fifa2026
+# AlongsideFIFA2026
